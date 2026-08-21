@@ -1,4 +1,4 @@
-# Dark Professional | Zombie Escape Levels | Top 50
+# Dark Professional | Zombie Escape Levels | Top 100
 
 | No | Avatar | Steam Nick | SteamID | Level | EXP |
 | :--- | :---: | :--- | :--- | :---: | :---: |
